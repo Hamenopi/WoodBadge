@@ -17,7 +17,7 @@ I will reach out to at least 5 units about planned event.
 - Pack 244  
 - Troop 554  
 
-I will reach out to Houston Food Bank for Dates  
+I will reach out to Houston Food Bank for Dates - done  
 I will share event on social media  
 I will share event at district roundtable
 

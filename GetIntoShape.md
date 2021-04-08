@@ -31,6 +31,6 @@ I will increase frequency of exercise to 4 times a day for 30 minutes by month 6
 
 ### Boxes ###
 
-Does this goal Promote Diversity? **No**.  
-Does this goal Promote Membership and Retention? **No**.  
-Does this goal Show a Line of Sight to the Youth? **Yes**.
+Does this goal Promote Diversity? **NO**.  
+Does this goal Promote Membership and Retention? **NO**.  
+Does this goal Show a Line of Sight to the Youth? **YES**.
