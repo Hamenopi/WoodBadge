@@ -11,8 +11,14 @@ I will then increase frequency of workouts until I get to working out 4 times a 
 
 ### MEASURABLE ###
 
-I will track exercise, diet, and weight using MyFitnessPal daily.  
-I will report progress monthly.
+- Track exercise, diet, and weight using MyFitnessPal daily. - Doing 
+- Report progress monthly. - Doing
+  1. - Doing 
+  2. - Not Started
+  3. - Not Started
+  4. - Not Started
+  5. - Not Started
+  6. - Not Started
 
 ### ATTAINABLE ###
 
