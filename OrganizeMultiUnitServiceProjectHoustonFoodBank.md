@@ -27,7 +27,7 @@ I will share event at district roundtable - Not Started
 
 ### ATTAINABLE ###
 
-After developing a plan. I will secure a date with the Houston Food Bank. - 7/31/2021
+After developing a plan. I will secure a date with the Houston Food Bank. - 7/31/2021  
 I will then share date and information with units I have recruited. - 70 slots total. 30 adults, 40 youth.
 
 ### RELEVANT ###
@@ -37,8 +37,8 @@ This will help the local community, bring together scout units, complete a summe
 ### TIMELY ###
 
 Starting when I return from Woodbadge, I will reach out to other units about interest. - Done  
-I will reach out to Houston Food Bank to secure a date 7/31/2021 - Done
-I will share date and availibility with interested units - Doing
+I will reach out to Houston Food Bank to secure a date 7/31/2021 - Done  
+I will share date and availibility with interested units - Doing  
 I will then advertise event at next roundtable  - Not Started
 
 ### Boxes ###
@@ -51,8 +51,8 @@ Does this goal Show a Line of Sight to the Youth? **YES**.
 
 ### Invite Text ###
 
-I am cordinating a multi-unit service projects benefitting Houston Food Bank on July 31st, 2021, from 800 AM to 1200 PM where scout families (age 6+) can come together, learn about hunger, relief efforts, and help the greater Houston community.
-There are only 70 slots availible. 30 slots for adults. 40 for youth under 18. The minimum age is 6.
-These slots will fill up fast so please consider signing up early. Thanks!
+I am cordinating a multi-unit service projects benefitting Houston Food Bank on July 31st, 2021, from 800 AM to 1200 PM where scout families (age 6+) can come together, learn about hunger, relief efforts, and help the greater Houston community.  
+There are only 70 slots availible. 30 slots for adults. 40 for youth under 18. The minimum age is 6.  
+These slots will fill up fast so please consider signing up early. Thanks!  
 Signup here:
 [http://houstonfoodbank.civicore.com/index.php?section=indGpRegistrations&action=conditional&fwID=62312]
