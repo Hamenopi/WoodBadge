@@ -21,14 +21,14 @@ I will reach out to at least 5 units about planned event.
 - Troop 715, League City
 - Troop 554, League City
 
-I will reach out to Houston Food Bank for Dates - 7/31/2021, slots 70, adult slots 30, youth slots 40 - Done
-I will share info to intereted units - Doing
-I will share event at district roundtable - Not Started
+I will reach out to Houston Food Bank for Dates - 7/31/2021, slots 70, adult slots 30, youth slots 40 - Done  
+I will share info to intereted units - Doing  
+I will share event at district roundtable - Not Started  
 
 ### ATTAINABLE ###
 
 After developing a plan. I will secure a date with the Houston Food Bank. - 7/31/2021  
-I will then share date and information with units I have recruited. - 70 slots total. 30 adults, 40 youth.
+I will then share date and information with units I have recruited. - 70 slots total. 30 adults, 40 youth.  
 
 ### RELEVANT ###
 
@@ -39,7 +39,7 @@ This will help the local community, bring together scout units, complete a summe
 Starting when I return from Woodbadge, I will reach out to other units about interest. - Done  
 I will reach out to Houston Food Bank to secure a date 7/31/2021 - Done  
 I will share date and availibility with interested units - Doing  
-I will then advertise event at next roundtable  - Not Started
+I will then advertise event at next roundtable  - Not Started  
 
 ### Boxes ###
 
