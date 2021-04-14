@@ -6,13 +6,19 @@ Get into **Hike Guadalupe Mountain** Shape.
 
 ### SPECIFIC ###
 
-Starting when I return from Woodbadge, I will commit to working out 3 times a day for 20 minutes for 1 month.  
-I will then increase frequency of workouts until I get to 4 times a day for 30 minutes in 6 months.
+When I return from Woodbadge, I will commit to working out 3 times a day for 20 minutes for 1 month.  
+I will then increase frequency of workouts until I get to working out 4 times a day for 30 minutes in 6 months.
 
 ### MEASURABLE ###
 
-I will track exercise, diet, and weight using MyFitnessPal daily.  
-I will report progress monthly.
+- Track exercise, diet, and weight using MyFitnessPal daily. - Doing 
+- Report progress monthly. - Doing
+  1. - Doing 
+  2. - Not Started
+  3. - Not Started
+  4. - Not Started
+  5. - Not Started
+  6. - Not Started
 
 ### ATTAINABLE ###
 
@@ -20,13 +26,13 @@ If injured or sick, I will maximize rest and recovery while doing light, modifie
 
 ### RELEVANT ###
 
-A healthier me can better serve the scouting community.
+A healthier me better serves the scouting community.
 
 ### TIMELY ###
 
-Starting when I return from Woodbadge, I will start exercising at least 3 times a week for 20 minutes during the first month.  
+Starting the week after I return from Woodbadge, I will start exercising at least 3 times a week for 20 minutes during the first month.  
 I will track exercise, diet, and weight in MyFitnessPal App daily.  
-Monthly I will report back on progress.  
+I will report progress to Rene monthly.  
 I will increase frequency of exercise to 4 times a day for 30 minutes by month 6.
 
 ### Boxes ###
