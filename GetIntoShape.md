@@ -8,6 +8,10 @@ Get into **Hike Guadalupe Mountain** Shape.
 
 When I return from Wood Badge, I will commit to working out 3 times a day for 20 minutes for 1 month.  
 I will then increase the frequency of workouts until I get to working out 4 times a day for 30 minutes in 6 months.
+<<<<<<< HEAD
+=======
+
+>>>>>>> 38c90d3afb2c99077583b7543594603ccc477a42
 
 ### MEASURABLE ###
 
