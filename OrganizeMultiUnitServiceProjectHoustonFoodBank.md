@@ -6,11 +6,11 @@ Organize Multi-Unit Houston Food Bank Service Project
 
 ### SPECIFIC ###
 
-I am coordinating a multi-unit service projects benefitting Houston Food Bank on July 31st, 2021, from 800 AM to 1200 PM where scout families (age 6+) can come together, learn about hunger, relief efforts, and help the greater Houston community.
+I am coordinating a multi-unit service project benefiting Houston Food Bank on July 31st, 2021, from 800 AM to 1200 PM where scout families (age 6+) can come together, learn about hunger, relief efforts, and help the greater Houston community.
 
 ### MEASURABLE ###
 
-I will reach out to at least 5 units about planned event.  
+I will reach out to at least 5 units about the planned event.  
 - Pack 554, League City
 - Pack 76, League City
 - Pack 615, League City
@@ -28,7 +28,7 @@ I will share event at district roundtable - Not Started
 ### ATTAINABLE ###
 
 After developing a plan. I will secure a date with the Houston Food Bank. - 7/31/2021  
-I will then share date and information with units I have recruited. - 70 slots total. 30 adults, 40 youth.  
+I will then share the date and information with units I have recruited. - 70 slots total. 30 adults, 40 youth.  
 
 ### RELEVANT ###
 
@@ -36,9 +36,9 @@ This will help the local community, bring together scout units, complete a summe
 
 ### TIMELY ###
 
-Starting when I return from Woodbadge, I will reach out to other units about interest. - Done  
+Starting when I return from Wood Badge, I will reach out to other units about interest. - Done  
 I will reach out to Houston Food Bank to secure a date 7/31/2021 - Done  
-I will share date and availibility with interested units - Doing  
+I will share date and availability with interested units - Doing  
 I will then advertise event at next roundtable  - Not Started  
 
 ### Boxes ###
