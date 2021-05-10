@@ -51,14 +51,12 @@ Does this goal Show a Line of Sight to the Youth? **YES**.
 
 ### Invite Text ###
 
-I am cordinating a multi-unit service projects benefitting Houston Food Bank on July 31st, 2021, from 800 AM to 1200 PM where scout families (age 6+) can come together, learn about hunger, relief efforts, and help the greater Houston community.  
+I am coordinating a multi-unit service project benefitting Houston Food Bank on July 31st, 2021, from 800 AM to 1200 PM where scout families (age 6+) can come together, learn about hunger, relief efforts, and help the greater Houston community.  
 
-There are only 70 slots available.  
-- 30 slots for adults.   
-- 40 for youth under 18.  
-- The minimum age is 6.
+There are around 50 slots left.  
+The minimum age is 6.  
+These slots are filling up fast. Please consider signing up early.  
 
-These slots will fill up fast. Please consider signing up early. 
 > note: You will need to sign up each participant individually, then add them to the group.  
 
 Signup here:
